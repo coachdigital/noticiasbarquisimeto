@@ -1,4 +1,4 @@
-Autor:Coach Digital
+Autor:Coach Digital y Jakio
 
 noticiasbarquisimeto
 ====================
