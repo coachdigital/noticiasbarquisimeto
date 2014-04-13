@@ -1,3 +1,5 @@
+Autor:Coach Digital
+
 noticiasbarquisimeto
 ====================
 
